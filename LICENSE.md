@@ -1,4 +1,4 @@
-
+premium Script for bedwars is the best bedwars Script, featuring no clip and private server access. Safe and powerful for all your needs.
 
 
 
